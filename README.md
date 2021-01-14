@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋🏽
 
 About me:
 - ⚒️ Geology Technician (IFRN)
